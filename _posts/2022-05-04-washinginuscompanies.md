@@ -14,4 +14,4 @@ However Marvel and DC, with their tendency to paper over issues like using LGBT 
 
 Before I leave you, there is also a similar issue with Red Washing: https://wikiless.org/wiki/Redwashing?lang=en In these activities an organization, political party, or company / corporation falsely presents themselves as being progressive, while still practicing highly capitalistic things. It's why blogs I found describing German Antifa is starting to seem less and less far fetched to me.
 
-It's bringing me to the idea that maybe German Antifa is an elaborate hybrid of Pink and Red washing.
+It's bringing me to the idea that maybe German Antifa is an elaborate hybrid of Pink and Red washing. And how it's contributed to a blend of Anarchist mobsters and Communist statesmen pretending to support LGBT issues to gain power in the institutions. While in practice behaving quite similar to Nazis in some ways.
