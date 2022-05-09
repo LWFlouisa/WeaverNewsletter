@@ -19,3 +19,7 @@ White Trans Anarchists need to start calling out the bullshit this overwhelming 
 And that doesnt exclude other forms of advocacy post modernism has tried consuming. More on that later.
 
 Sorry Fred Hampton, but your a Cis Black Male. But unlike you, I dont consider any race superior to any other.
+
+You can hear these anti German, anti French, anti-Italian people seeth because to them there is only black and white theories of descrimination. Making my own efforts to overcome my issues with French people basically pointless.
+
+We need a great awakening for Southern Europeans and Asian people.
