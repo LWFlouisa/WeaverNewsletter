@@ -6,7 +6,7 @@ published: true
 
 Anarchism built on Post Modernism leftist by Hubert Mercuse becomes a theory that prioritizes black lives over virtually every other minority group. LGBs? Trans women? Nevermind whether some of us are feminine or masculine presenting, post modernism sucks up everything under its vaccuum.
 
-This becomes problematic when the only issue you disagree with the left is about Post Modernism. It ignores subtler kinds of racial couples like a French girl dating and Asian woman, and apparently being a trans woman that doesnt change how her issues are seen as less worthy of examination than black people.
+This becomes problematic when the only issue you disagree with the left is about Post Modernism. It ignores subtler kinds of racial deacrimination like French girls dating Asian woman, and the issues they face: apparently being a trans woman that doesnt change how her issues are seen as less worthy of examination than black people.
 
 This is the kind of ironic ( or possibly intentionally anti-Asian and anti-Jewish ) racism that post modernism contributes: an extreme hierarchy that prefers black people over anyone else.
 
