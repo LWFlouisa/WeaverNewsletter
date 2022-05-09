@@ -4,7 +4,7 @@ published: true
 ---
 ## Racism Of Post Modern Theories
 
-Anarchism built on Post Modernism leftist by Hubert Mercuse becomes a theory that prioritizes black lives over virtually every other minority group. LGBs? Trans women? Nevermind whether some of us are feminine or masculine presenting, post modernism sucks up everything under its vaccuum and forces their artificial culture on us.
+Anarchism built on Post Modernism theories by Hubert Mercuse becomes a hierarchy that prioritizes black lives over virtually every other minority group. LGBs? Trans women? Nevermind whether some of us are feminine or masculine presenting, post modernism sucks up everything under its vaccuum and forces their artificial culture on us.
 
 This becomes problematic when the only issue you disagree with the left is about Post Modernism. It ignores subtler kinds of racial deacrimination like French girls dating Asian woman, and the issues they face: apparently being a trans woman that doesnt change how her issues are seen as less worthy of examination than black people.
 
