@@ -1,9 +1,9 @@
 ---
 title: The Invisible Racism Of Monocultural Theories
-author: SRWeaver
-tags: invisibleracism
-layout: post
+published true
 ---
+## The Invisible Racism Of Monocultural Theories
+
 Contrary to how the radical left presents itself, rather than seeking to abolish all racial hierarchies, what has happened is they've replaced the hierarchy that supposedly white culture has created ( more on this later ), even there it has become my belief that even within white people there are several racial subsets within them: Spanish, French, and Italians are the most obvious. But in Europe white people are defined differently, and that's why people with radically different skin tons are lumped in as being causasian. And yet radical leftism, and specifically Critical Race Theory, that promotes that all of societies ills have been caused by the white man, with obvious anti-simetic implications.
 
 That's not to say that I don't believe there is systemic racism. But what I've come to believe is that society is systemically racist against white and Asian people, rather than against black people, and even anything it is African Americans that have latched onto the levers of power. When they try to present systemic racism always being targeted at black power, they cover up the minor systemic racism that off-white people experience, including by not limited to Asian Americans, and people who they label as honorary white: how Critical Race Theory targets Jewish people being another example.
