@@ -1,6 +1,6 @@
 ---
 title: The Invisible Racism Of Monocultural Theories
-published true
+published: true
 ---
 ## The Invisible Racism Of Monocultural Theories
 
