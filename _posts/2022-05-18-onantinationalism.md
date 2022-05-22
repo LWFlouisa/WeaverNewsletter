@@ -2,6 +2,8 @@
 title: Black Identitarianism And White Identitarianism Are Equally Undesireable
 published: true
 ---
+<iframe width="100%" height="315" src="https://www.youtube.com/embed/NxNeyOiXlRU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
 For those who have followed my newsletter so far, youll know that I've been coming around to the idea that while there very much is a kind of Systemic Racism, it's not the kind of racism we're often presented with. In practice the United States has become a de factor Black Identitarian country, although in ways that no traditional leftist would have any business supporting.
 
 The worst aspect of white identitarianism, is that like with Nazi Germany, eventually this leads to white people eventually cannibalizing itself, because it's ran out of other people to demonize, and that excludes the other shitty things that tend to go along with Fascism ( or even "Privatized Marxism" ) where rather than "Each One According To Their Ability, Each One To Their Need", it is private companies where this dynamic is played out.
