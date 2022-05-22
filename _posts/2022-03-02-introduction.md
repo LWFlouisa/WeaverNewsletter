@@ -2,6 +2,8 @@
 title: Why Serial Killers Often Achieve More Than Activists
 published: true
 ---
+<iframe width="100%" height="315" src="https://www.youtube.com/embed/9WdKnZOtGjw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
 When you watch serial killer documentaries, you'll notice common elements, that one would wonder why Cultural Leftists in particular would choose to ignore. In particular, serial killers tend to evade captures for many years, and often cross state lines. Serial killers will also expose the ineptitude of law enforcement, who are unable to keep up with the various crimes, often done with different kinds of weapons. Also often serial killers will take advantage of periods of social instability, such as during a civil war, such as with a couple of Columbian murderer Garovito: https://www.thesun.co.uk/tvandshowbiz/10138583/dangerous-serial-killer-released-pedro-lopez/
 
 And yet if you were to ask most Cultural Leftists, they would say things like "black people are more likely to be victims of serial killers than white people", or that perhaps endorsing the notion of criminality in itself is a form of racial and gender profiling. With the former, while it's certainly true that racial profiling has been a problem, creating a vaccuum where there is no state is not exactly going to eliminate such things. With the former, given the fact that most serial killers tend to be men, one would wonder why in that instance they would choose to suggest that studying true crime is a form of gender profiling, because they often believe: Sexism = Power + Privilede, similarly to Racism.
