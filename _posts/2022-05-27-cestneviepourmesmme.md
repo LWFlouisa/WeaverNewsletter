@@ -3,6 +3,7 @@ title: C Est Ne Vie Pour Mes MME
 published: true
 ---
 C'EST NE VIE POUR MES MME
+un prose poesie
 
 At midnight the girl dreams of widow blades hanging on the wall. At midnight she in her sleep, longs for midnight forest seeking death. From petrified forests and to distant prairies, one may think one can find a tombstone with the ancient fairies.
 
