@@ -7,6 +7,8 @@ published: true
 
 To be clear this is for my next novel. I generally find anything more than a mini state abhorant.
 
+Note that my real idealogy is "Green Bartering".
+
 ---
 
 Leaders take on the figure of a bonevolent "Mother" figure.
