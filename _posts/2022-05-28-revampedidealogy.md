@@ -10,6 +10,19 @@ To be clear this is for my next novel. I generally find anything more than a min
 Note that my real idealogy is "Green Bartering".
 
 ---
+Archiduc Taiko
+[ Arch-Duck Ta-i-koh ]
+
+( 2018-2045 )
+
+Bonevolent archduke, woman who keeps pet geese and ducks and wear wooden shoes. But is eventually beheaded on television.
+
+Aruxiducotake
+[ Ah-duh shi-duh coh-tah keh ]
+
+Any woman well meaning but submissively manipulative that believes in dressing like others to develop a friendship. Sharp tungue. Doesnt necessarily wear wooden shoes.
+
+---
 
 Leaders take on the figure of a bonevolent "Mother" figure. They generally keep pet ducks and geese, and people are given favors for petting the duck. Each leader is a "Archiduc bienveillant".
 
