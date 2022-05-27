@@ -11,7 +11,7 @@ Note that my real idealogy is "Green Bartering".
 
 ---
 
-Leaders take on the figure of a bonevolent "Mother" figure.
+Leaders take on the figure of a bonevolent "Mother" figure. They generally keep pet ducks and geese, and people are given favors for petting the duck. Each leader is a "Archiduc bienveillant".
 
 Socially liberal ( pro lgbt ) with the exception of gun owning. Fashion is reverted to a modernized 19th century French or Swiss.
 
