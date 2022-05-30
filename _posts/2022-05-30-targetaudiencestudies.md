@@ -8,8 +8,6 @@ When I looked at my analytics, it turns out that much of my current audience is 
 
 As it turns out there is an extremely large current anarchist traditions over there. I'm not sure if that has much to do with, as the only time I've implied an interest in anarchist was in one image where Hemato met up with a friend when she returned back home. I've noticed also my poetry seems to get views than my short stories and novels, which is...something to think about for sure.
 
-But there is a possibility there is a subset of women in India that are into Anarchist and Minarchist topics. I think the main reason I hadn't considered marketing to them, is my main interest is in Southern European ( especially France and Italy ) cultures, and East Asian cultures like Korea and Japan.
+But there is a possibility there is a subset of women in India that are into Anarchist and Minarchist topics. I think the main reason I hadn't considered marketing to them, is my main interest is in Southern European ( especially France and Italy ) cultures, and East Asian cultures like Korea and Japan. But it doesn't seem like Gothic romance would be something that would appeal to them, and yet one of the shows recommended to me was a I-Drama starring a MC that was a vampire.
 
-But it doesn't seem like Gothic romance would be something that would appeal to them, and yet one of the shows recommended to me was a I-Drama starring a MC that was a vampire.
-
-So all that to say is, don't rule out seemingly unlikely demographics.
+So all that to say is, don't rule out seemingly unlikely demographics. The other slightly more likely is Philipines. I say slightly because given the setting I created, it makes a little bit more sense given the history over there.
